@@ -1,2 +1,2 @@
-# IELTS-Notes
-a repository for IELTS
+# Notes
+a repository for Notes
