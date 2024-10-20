@@ -1,1 +1,0 @@
-How to Think 3x Faster in 7 Days (from a Top 1% Med Student)
